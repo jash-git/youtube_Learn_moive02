@@ -7,7 +7,7 @@ https://www.youtube.com/watch?v=4x_wwPdYyDc
 03.必學！6種熱熔膠的使用方法 6 Hot Glue Gun Life Hacks[自製耳機線纏繞桿,長尾夾+捲尺=畫線器]
 https://www.youtube.com/watch?v=5z3ignMVPKs
 
-04.热熔胶这些隐藏功能，我不说你都知道吗
+04.熱熔膠這些隱藏功能，我不說你都知道嗎[自製玻璃杯攪拌匙架,自製網狀收納碗,自製筆電墊高墊]
 https://www.youtube.com/watch?v=Ns0PVtxDaXw
 
 05.简单实用的吸管手工DIY，看完才知道吸管还有这么多用处！
