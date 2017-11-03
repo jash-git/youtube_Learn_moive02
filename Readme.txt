@@ -10,7 +10,7 @@ https://www.youtube.com/watch?v=5z3ignMVPKs
 04.熱熔膠這些隱藏功能，我不說你都知道嗎[自製玻璃杯攪拌匙架,自製網狀收納碗,自製筆電墊高墊]
 https://www.youtube.com/watch?v=Ns0PVtxDaXw
 
-05.简单实用的吸管手工DIY，看完才知道吸管还有这么多用处！
+05.簡單實用的吸管手工DIY，看完才知道吸管還有這麼多用處！[自製手環,整線帶]
 https://www.youtube.com/watch?v=JP4fZPGEY0E
 
 06.10個驚人的創意事物用熱膠
@@ -63,6 +63,15 @@ https://www.youtube.com/watch?v=gihBSmPjyrw
 
 22.《必學生活智慧》多出的吸管可以這樣做　超實用妙招
 https://www.youtube.com/watch?v=7OTjrjk8SQQ
+
+23.为什么说热熔胶是万能的，看完这个视频我就明白了！
+https://www.youtube.com/watch?v=I_oiz8uQJe8
+
+24.8 Awesome Hot Glue Gun Life Hacks
+https://www.youtube.com/watch?v=JZr8qg4243A
+
+25.27 FANTASTIC THINGS TO MAKE WITH GLUE GUN
+https://www.youtube.com/watch?v=UeJm1yCz2sg
 
 LIFE HACKS
 https://www.youtube.com/watch?v=g1sz1Lj1su4&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
