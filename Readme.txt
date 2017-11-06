@@ -13,7 +13,7 @@ https://www.youtube.com/watch?v=Ns0PVtxDaXw
 05.簡單實用的吸管手工DIY，看完才知道吸管還有這麼多用處！[自製手環,整線帶]
 https://www.youtube.com/watch?v=JP4fZPGEY0E
 
-06.10個驚人的創意事物用熱膠
+06.10個驚人的創意事物用熱膠[自製網狀錢包,自製美工刀握柄,自製手機架,自製網狀拖鞋,自製瓶口塞,自製一開罐瓶口]
 https://www.youtube.com/watch?v=sYzu2Bautuw
 
 07.筆記！超實用6大熱熔膠用法 網友驚呼：居然可變橡皮擦！
@@ -72,6 +72,39 @@ https://www.youtube.com/watch?v=JZr8qg4243A
 
 25.27 FANTASTIC THINGS TO MAKE WITH GLUE GUN
 https://www.youtube.com/watch?v=UeJm1yCz2sg
+
+衣架和4個驚人的東西 - 生活黑客
+https://www.youtube.com/watch?v=kULZsS1kB-c
+
+萬字夾的用途
+https://www.youtube.com/watch?v=k8cbDZ4FkwU
+
+11生活黑客 | 長尾夾
+https://www.youtube.com/watch?v=kiog2xy4PTI
+
+教你用回形针開鎖- Pick Lock with Gem Clips
+https://www.youtube.com/watch?v=R4KMx4FeSFI
+
+【DIY】橡皮筋最絕妙的５種用法 你都學會了嗎?
+https://www.youtube.com/watch?v=HYhVF_BZYOI
+
+想不到橡皮筋的妙用這樣多，學起來受用終身！
+https://www.youtube.com/watch?v=RPcb5cDqEXA
+
+12 Zip Tie Life Hacks
+https://www.youtube.com/watch?v=ZJQjziJKQ1s
+
+令人難以置信的USB小工具可以在家裡進行
+https://www.youtube.com/watch?v=fr4-VpbVBGs
+
+DIY太陽能發電器(超簡易)
+https://www.youtube.com/watch?v=-hc65qUe5uk
+
+用废弃的CD就可以制作太阳能电池，你相信吗？
+https://www.youtube.com/watch?v=JftzvICPdtc
+
+自己制作无叶风扇
+https://www.youtube.com/watch?v=CZDbHosKoGQ
 
 LIFE HACKS
 https://www.youtube.com/watch?v=g1sz1Lj1su4&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
