@@ -16,7 +16,7 @@ https://www.youtube.com/watch?v=JP4fZPGEY0E
 06.10個驚人的創意事物用熱膠[自製網狀錢包,自製美工刀握柄,自製手機架,自製網狀拖鞋,自製瓶口塞,自製一開罐瓶口]
 https://www.youtube.com/watch?v=sYzu2Bautuw
 
-07.筆記！超實用6大熱熔膠用法 網友驚呼：居然可變橡皮擦！
+07.筆記！超實用6大熱熔膠用法[]
 https://www.youtube.com/watch?v=WUPLn05cbRc
 
 08.超省錢初心者燉飯！三餐67元 網友「根本月底救星」
