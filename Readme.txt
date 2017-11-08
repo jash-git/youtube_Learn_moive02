@@ -16,10 +16,10 @@ https://www.youtube.com/watch?v=JP4fZPGEY0E
 06.10個驚人的創意事物用熱膠[自製網狀錢包,自製美工刀握柄,自製手機架,自製網狀拖鞋,自製瓶口塞,自製一開罐瓶口]
 https://www.youtube.com/watch?v=sYzu2Bautuw
 
-07.筆記！超實用6大熱熔膠用法[]
+07.筆記！超實用6大熱熔膠用法[鉛筆橡皮擦,防水磁扣,畫線器,眼鏡鼻樑支撐修復]
 https://www.youtube.com/watch?v=WUPLn05cbRc
 
-08.超省錢初心者燉飯！三餐67元 網友「根本月底救星」
+08.超省錢初心者燉飯「根本月底救星」
 https://www.youtube.com/watch?v=KEDaJOf9vfQ
 
 09.12道超商食材「省錢料理」！小資族必學！12 Money Saving Meals from Convenience Store Ingredients.
@@ -73,38 +73,45 @@ https://www.youtube.com/watch?v=JZr8qg4243A
 25.27 FANTASTIC THINGS TO MAKE WITH GLUE GUN
 https://www.youtube.com/watch?v=UeJm1yCz2sg
 
-衣架和4個驚人的東西 - 生活黑客
+26.衣架和4個驚人的東西 - 生活黑客
 https://www.youtube.com/watch?v=kULZsS1kB-c
 
-萬字夾的用途
+27.萬字夾的用途
 https://www.youtube.com/watch?v=k8cbDZ4FkwU
 
-11生活黑客 | 長尾夾
+28.11生活黑客 | 長尾夾
 https://www.youtube.com/watch?v=kiog2xy4PTI
 
-教你用回形针開鎖- Pick Lock with Gem Clips
+29.教你用回形针開鎖- Pick Lock with Gem Clips
 https://www.youtube.com/watch?v=R4KMx4FeSFI
 
-【DIY】橡皮筋最絕妙的５種用法 你都學會了嗎?
+30.【DIY】橡皮筋最絕妙的５種用法 你都學會了嗎?
 https://www.youtube.com/watch?v=HYhVF_BZYOI
 
-想不到橡皮筋的妙用這樣多，學起來受用終身！
+31.想不到橡皮筋的妙用這樣多，學起來受用終身！
 https://www.youtube.com/watch?v=RPcb5cDqEXA
 
-12 Zip Tie Life Hacks
+32.12 Zip Tie Life Hacks
 https://www.youtube.com/watch?v=ZJQjziJKQ1s
 
-令人難以置信的USB小工具可以在家裡進行
+33.令人難以置信的USB小工具可以在家裡進行
 https://www.youtube.com/watch?v=fr4-VpbVBGs
 
-DIY太陽能發電器(超簡易)
+34.DIY太陽能發電器(超簡易)
 https://www.youtube.com/watch?v=-hc65qUe5uk
 
-用废弃的CD就可以制作太阳能电池，你相信吗？
+35.用废弃的CD就可以制作太阳能电池，你相信吗？
 https://www.youtube.com/watch?v=JftzvICPdtc
 
-自己制作无叶风扇
+36.自己制作无叶风扇
 https://www.youtube.com/watch?v=CZDbHosKoGQ
+
+
+37.自製信號彈
+https://www.youtube.com/watch?v=PDrX7-wOQVA
+
+38.【實驗室】傑里自製煙霧彈實驗?! 煙霧彈變成閃光彈了?! 可樂煙霧彈實驗! | 
+https://www.youtube.com/watch?v=fFFbiXX7PZ8
 
 LIFE HACKS
 https://www.youtube.com/watch?v=g1sz1Lj1su4&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
